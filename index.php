@@ -1,1 +1,1 @@
-Belajar
+Belajar ikhlas dunia akhirat
